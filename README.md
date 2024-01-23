@@ -1,0 +1,5 @@
+![Cuplikan layar 2024-01-19 145847](https://github.com/SIPalingMumet/intent_activity/assets/156174893/7af67425-6bfc-4360-97ff-cdbdd251e2f6)
+![Cuplikan layar 2024-01-19 145840](https://github.com/SIPalingMumet/intent_activity/assets/156174893/778757da-271f-4aba-a512-f728d4bb7351)
+![Cuplikan layar 2024-01-19 145826](https://github.com/SIPalingMumet/intent_activity/assets/156174893/aa064b83-c9b4-44e9-abf1-febc8792613c)
+![Cuplikan layar 2024-01-19 145817](https://github.com/SIPalingMumet/intent_activity/assets/156174893/e25ea468-6555-4d2a-9934-1f560e8595a9)
+![Cuplikan layar 2024-01-19 145807](https://github.com/SIPalingMumet/intent_activity/assets/156174893/d1827b0b-3cc0-4e23-8e19-347807cbef00)
